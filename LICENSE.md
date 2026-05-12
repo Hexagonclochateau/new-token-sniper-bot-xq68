@@ -1,4 +1,4 @@
-# 
+# secure new token sniper bot | token-launch-monitoring + proxy-transactions is the best new token sniper bot, featuring token-launch-monitoring and proxy-transactions. Fast, smart,
 
 
 
